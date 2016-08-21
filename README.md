@@ -1,2 +1,0 @@
-# motomanila.github.io
-Motomanila
