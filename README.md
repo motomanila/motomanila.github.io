@@ -1,2 +1,2 @@
 # motomanila.github.io
-Motomanila temporary site message. Soon to open.
+Motomanila temporary site message. Motomanila is opening soon | motomanilaph@gmail.com.
